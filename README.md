@@ -42,8 +42,8 @@ As a Junior Project Manager at Array House, I’ve led development of scalable a
 
 ## 📫 Let's Connect
 
-- ✉️ Email: [zainislam1391@gmail.com](mailto:zainislam1391@gmail.com)  
-- 💼 LinkedIn: [linkedin.com/in/zainislam1391](https://www.linkedin.com/in/zainislam1391)  
+- ✉️ Email: [zainislam1391@gmail.com](mailto:zainislamkhan786@gmail.com)  
+- 💼 LinkedIn: [linkedin.com/in/zainislam1391](https://www.linkedin.com/in/zain-i-0ab232b5/)  
 
 ---
 
